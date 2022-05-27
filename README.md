@@ -1,1 +1,0 @@
-# AR_prova_25o08qc
